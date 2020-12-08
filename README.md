@@ -1,2 +1,2 @@
 # africa
-Africa is the origin of 
+Africa is the origin of humanity
